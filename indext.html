@@ -1,1 +1,0 @@
-# Legit-data-.Ghana-
